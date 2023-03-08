@@ -1,1 +1,0 @@
-alcelik hasik
